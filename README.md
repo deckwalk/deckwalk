@@ -1,1 +1,1 @@
-a perceptive Deck Walker.
+a perceptive deck walker.
