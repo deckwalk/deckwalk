@@ -1,1 +1,1 @@
-prerceptively walking reality with a deck.
+perceptively walking reality with a deck.
