@@ -1,1 +1,1 @@
-a perceptive deck walker.
+prerceptively walking reality with a deck.
